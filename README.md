@@ -1,1 +1,1 @@
-# bolumsonual-stirma
+# bolumsonualistirma
